@@ -1,2 +1,3 @@
 Dzień Dobry
 
+DO WIDZENIA
